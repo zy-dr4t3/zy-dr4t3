@@ -1,16 +1,33 @@
-## Hi there 👋
+*****
+</details>
 
-<!--
-**zy-dr4t3/zy-dr4t3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<details align="center">
 
-Here are some ideas to get you started:
+<summary>ㅤ ${\textsf{\color{#e0e0e0}Some things to know about me}}$ !! </summary>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery11/fa60fe95.gif?v=49efbe4c"></a>ㅤ» I am a straight male, though I am an ally to the queers.
+  
+  <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery11/c58e2fb3.gif?v=49efbe4c"></a>ㅤ » I mainly use he/him pronouns, but I don't mind any.
+  
+  <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery11/e7cccd33.gif?v=49efbe4c"></a>ㅤ » I have echolalia, so you will hear me repeat phrases a lot.
+  
+  <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery11/3a2bc8f8.gif?v=49efbe4c"></a>ㅤ » I am a fictionkin who can but doesn't always mind doubles. IWC.
+  
+  <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery11/1ad1ffa9.gif?v=49efbe4c"></a>ㅤ » I am very blunt and sarcastic - do not take all I say to heart.
+  
+  <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery11/225f0b76.png?v=49efbe4c"></a>ㅤ » I have Autism and OCD, currently working on an NPD diagnosis.
+  
+   <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery11/8e9c37dc.gif?v=49efbe4c"></a>ㅤ » Please only use the names listed on my profile. If unsure, message me.
+   
+  <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery92/e9c997f9.gif?v=49efbe4c"></a>ㅤ » Basic DNI criteria - more included in "PonyTown_Information".
+  
+</details>
+
+
+<div align = center>
+<img width="536" height="391" alt="5HY2G0s" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/youtube_post.png" />
+</div>
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[Atabook](https://smilk.atabook.org/)⠀⠀⠀[Commissions](https://ko-fi.com/zydr4t3/commissions)⠀⠀⠀[Strawpage](https://zydr4t3.straw.page/)
+
+*****
