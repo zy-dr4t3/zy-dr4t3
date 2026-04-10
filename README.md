@@ -15,11 +15,11 @@
   
   <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery11/1ad1ffa9.gif?v=49efbe4c"></a>ㅤ » I am very blunt and sarcastic - do not take all I say to heart.
   
-  <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery11/225f0b76.png?v=49efbe4c"></a>ㅤ » I have Autism and OCD, currently working on an NPD diagnosis.
+  <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery11/225f0b76.png?v=49efbe4c"></a>ㅤ » I have ASD and OCD, currently working on an NPD diagnosis.
   
    <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery11/8e9c37dc.gif?v=49efbe4c"></a>ㅤ » Please only use the names listed on my profile. If unsure, message me.
    
-  <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery92/e9c997f9.gif?v=49efbe4c"></a>ㅤ » Basic DNI criteria - more included in "PonyTown_Information".
+  <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery92/e9c997f9.gif?v=49efbe4c"></a>ㅤ » Please be patient with me. I can be quite slow at times...
   
 </details>
 
