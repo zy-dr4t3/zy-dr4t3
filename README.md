@@ -1,4 +1,11 @@
 *****
+
+<div align = center>
+<img width="536" height="391" alt="5HY2G0s" src="https://m.media-amazon.com/images/M/MV5BMjRhMGQ0ODYtYTg1OS00NTBlLTlmN2YtOGQyZDBlNGI1ZTNlXkEyXkFqcGc@._V1_FMjpg_UX1000_.jpg" />
+</div>
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[Atabook](.)⠀⠀⠀[Commissions](.)⠀⠀⠀[Strawpage](.)
+
 </details>
 
 <details align="center">
@@ -22,12 +29,5 @@
   <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery92/e9c997f9.gif?v=49efbe4c"></a>ㅤ » Please be patient with me. I can be quite slow at times...
   
 </details>
-
-
-<div align = center>
-<img width="536" height="391" alt="5HY2G0s" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/youtube_post.png" />
-</div>
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[Atabook](.)⠀⠀⠀[Commissions](.)⠀⠀⠀[Strawpage](.)
 
 *****
