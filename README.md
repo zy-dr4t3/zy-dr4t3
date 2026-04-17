@@ -28,9 +28,9 @@
 
   <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery11/c58e2fb3.gif?v=49efbe4c"></a>ㅤ » I am autistic and often struggle with social cues / forming sentences properly.
   
-  <a href="" target="_blank"><img width="25"></a> If you didn't understand something I said or have any questions,
+  <a href="" target="_blank"><img width="25"></a> If you didn't understand something I said or have any questions, please
 
-  <a href="" target="_blank"><img width="25"></a> please DM me before jumping to consclusions so no misunderstandings happen. : )
+  <a href="" target="_blank"><img width="25"></a> DM me before jumping to consclusions so no misunderstandings happen. : )
 </details>
 
 *****
