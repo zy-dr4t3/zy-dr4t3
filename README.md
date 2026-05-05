@@ -1,7 +1,7 @@
 *****
 
 <div align = center>
-<img width="536" height="391" alt="5HY2G0s" src="https://m.media-amazon.com/images/M/MV5BMjRhMGQ0ODYtYTg1OS00NTBlLTlmN2YtOGQyZDBlNGI1ZTNlXkEyXkFqcGc@._V1_FMjpg_UX1000_.jpg" />
+<img width="536" height="391" alt="" src="https://kommodo.ai/i/c6dhWY7h88MIDruo2GAr" />
 </div>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[Atabook](https://zydr4t3.atabook.org/)⠀⠀⠀[Commissions](https://ko-fi.com/zydr4t3/commissions)⠀⠀⠀[Strawpage](https://repoman.straw.page/)
