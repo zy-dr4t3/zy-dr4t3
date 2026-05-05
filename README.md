@@ -1,7 +1,7 @@
 *****
 
 <div align = center>
-<img width="1000" height="666" alt="" src="https://files.catbox.moe/rv4ojz.png" />
+<img width="600" height="433" alt="" src="https://files.catbox.moe/rv4ojz.png" />
 </div>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[Atabook](https://zydr4t3.atabook.org/)⠀⠀⠀[Commissions](https://ko-fi.com/zydr4t3/commissions)⠀⠀⠀[Strawpage](https://repoman.straw.page/)
