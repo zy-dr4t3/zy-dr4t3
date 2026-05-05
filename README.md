@@ -1,7 +1,7 @@
 *****
 
 <div align = center>
-<img width="536" height="391" alt="" src="https://kommodo.ai/i/c6dhWY7h88MIDruo2GAr" />
+<img width="536" height="340" alt="" src="https://files.catbox.moe/rv4ojz.png" />
 </div>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[Atabook](https://zydr4t3.atabook.org/)⠀⠀⠀[Commissions](https://ko-fi.com/zydr4t3/commissions)⠀⠀⠀[Strawpage](https://repoman.straw.page/)
